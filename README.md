@@ -1,4 +1,4 @@
-<code><img align="left" width="90" src="https://www.google.com/url?sa=i&url=https%3A%2F%2Faminoapps.com%2Fc%2Fpokemon%2Fpage%2Fblog%2Fshiny-fennekin%2FKkhM_uR7ZEjNMq6wLx1wo517qGYNvP&psig=AOvVaw2YfwS4_ZErK3lM5eYKQqY_&ust=1706203350712000&source=images&cd=vfe&opi=89978449&ved=0CBMQjRxqFwoTCJi7svrE9oMDFQAAAAAdAAAAABAD"></code>
+<code><img align="left" width="90" src="https://pm1.aminoapps.com/6434/d0f14970377296f916ccea0c3d3292541b258bdf_hq.jpg"></code>
 # Hello folks! 
 I'm new on all this so please don't shoot me yet! 
 
